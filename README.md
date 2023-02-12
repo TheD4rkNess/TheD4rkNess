@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @TheD4rkNess
-- 👀 I’m interested in Girls
+- 👋 Hi, I’m @TheD4rkNess, aka MUSLEWSKI Marian
 - 🌱 I’m currently learning Digital & Computer Science
-- 💞️ I’m looking to collaborate on Projects with friends
-- 📫 How to reach me on discord with Oxfe#6488
+- 📫 How to reach me on discord with TheD4rkNess#6488
