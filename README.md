@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @TheD4rkNess, aka MUSLEWSKI Marian
 - 🌱 I’m currently learning Digital & Computer Science
-- 📫 Reach me on discord with TheD4rkNess#6488
+- 📫 Reach me on discord at @thed4rkness
